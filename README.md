@@ -1,2 +1,2 @@
 # Try-my-best
-Study
+Study hard, day day up!
